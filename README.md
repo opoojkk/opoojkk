@@ -23,6 +23,6 @@
 
 
 ### 📍 Where to find me
-Blog: [joykeepsflowin.com](https://joykeepsflowin.com)
+Blog: [opoojkk.com](https://opoojkk.com)
 
 Github:[opoojkk](https://github.com/opoojkk)
